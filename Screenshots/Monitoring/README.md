@@ -1,0 +1,1 @@
+# MONITORIND Configuration Screenshots
